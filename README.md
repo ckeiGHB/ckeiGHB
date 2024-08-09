@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ckeiGHB. I’m looking for a person/team who is interested in collaboration on a demonstration experiment by using smart contract.
+- My start up project is now on Problem Solution Fit (PSF) to open up new market for an intangible asset.
